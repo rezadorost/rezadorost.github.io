@@ -1,1 +1,0 @@
-# rezadorost.github.io
